@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0f0bf9f1-9a7b-408c-a517-8daf2a21bbb9)|![image](https://github.com/user-attachments/assets/b10ee57d-25d1-4890-9141-0122b6e09fff)|<a href="https://apkmia.com/my-femboy-roommate/">Download Now</a>|
+|![image](https://github.com/user-attachments/assets/b10ee57d-25d1-4890-9141-0122b6e09fff)|<a href="https://apkmia.com/my-femboy-roommate/">Download Now</a>|
 |:-----------------------------------------------------:|----------------------------|
 | **Plataforma**: Android 5.0+                          | **Versión**: 9.7           |
 | **Tamaño**: 200 MB                                    | ⭐⭐⭐⭐⭐ (5/5)               |
